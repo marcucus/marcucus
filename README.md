@@ -1,4 +1,4 @@
-# Salut ! 👋 Je suis Adrien
+# Salut ! 👋 Je suis Adrien !
 
 ## 🚀 À propos de moi
 
